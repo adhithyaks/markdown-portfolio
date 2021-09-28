@@ -1,1 +1,1 @@
-my github profile link (https://github.com/adhithyaks)
+you can check my github account [github.com/adhithyaks](https://github.com/adhithyaks)
